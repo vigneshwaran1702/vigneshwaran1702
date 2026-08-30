@@ -1,1 +1,1 @@
-✦ Turning ideas into intelligent experiences.
+Turning ideas into intelligent experiences ✦ 
